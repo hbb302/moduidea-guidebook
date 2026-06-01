@@ -36,4 +36,4 @@ guidebook/
 
 ## 문의
 
-프로그램 담당: 02-6338-1726 · rnbdp@rnbdp.com
+프로그램 담당: 02-6338-1726 · rnbdpartners@gmail.com
